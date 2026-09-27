@@ -22,7 +22,7 @@ Sennheiser capture keeps every session smooth. Sennheiser video stays clear. Sen
 
 ---
 
-![Banner Placeholder](https://www.digitalstudiome.com/cloud/2021/08/13/DfZ7FKDG-Sennheiser-WSM-1.jpg)
+![Banner Placeholder](https://cdn.uc.assets.prezly.com/3f735914-c110-4075-9ecd-76cf1ca92014/Spectera_WebUI_Overview_dark_2.jpeg)
 
 ---
 
